@@ -1,2 +1,2 @@
-# Bulk sms privacy policy
-This is for the sms delight
+# Sure Move privacy policy
+This is for the sure move
